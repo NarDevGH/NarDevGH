@@ -23,4 +23,4 @@
 </p>
 
 - 📫 How to reach me:
-**bautista.mateo@outlook.com**
+**bautista.mateogm@gmail.com**
